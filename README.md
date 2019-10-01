@@ -12,4 +12,4 @@
 
 ## Links 
 
-*[LinkedIn](linkedin.com/in/tielah-s-306041188)
+* [LinkedIn](linkedin.com/in/tielah-s-306041188)
